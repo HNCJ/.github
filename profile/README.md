@@ -1,3 +1,3 @@
 # Welcome to HNCJ Community 👏
 
-![hncj](https://www.hncj.edu.cn/_mediafile/hncj/2012/01/11/4yda94zcgn.jpg)
+![hncj](https://inews.gtimg.com/newsapp_bt/0/13732000928/1000)
